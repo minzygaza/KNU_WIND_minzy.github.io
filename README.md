@@ -1,1 +1,0 @@
-# minzygaza.github.io
