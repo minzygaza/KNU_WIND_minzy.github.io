@@ -1,1 +1,1 @@
-# KNU_WIND_minzy.github.io
+# minzygaza.github.io
